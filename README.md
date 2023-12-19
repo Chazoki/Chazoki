@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Chazoki or Preston
+- 👋 Hi, I’m @Prest00n or Preston
 - 👀 I’m interested in DnD, Gaming, and Coding
 - 🌱 I’m currently learning Java!
 - 📫 How to reach me: 
